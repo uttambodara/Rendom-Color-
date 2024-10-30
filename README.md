@@ -36,7 +36,7 @@
 ![Screenshot 2024-06-30 222945](https://github.com/uttambodara/Rendom-Color-/assets/129719033/c05b87f4-16ff-4b08-9d5b-65ed4435a3b7)
 
 
-Information
+About Me
 ------------------
 
 Author❤️: [UTTAM BODARA](https://buymeacoffee.com/uttambodara)
